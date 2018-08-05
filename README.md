@@ -2,6 +2,6 @@
 
 Dobry den,
 
-   rad bych Vas privital na nasich strankach.
+   rad bych Vas privital na nasich strankach www.nejlevnejsi-software.cz
  
  S pozdravem Marek Zdrazil
